@@ -1,1 +1,1 @@
-Polanaya ABOBA
+Polnaya ABOBA
